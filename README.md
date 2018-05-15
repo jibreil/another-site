@@ -1,1 +1,1 @@
-im-mr-meeseeks-look-at.me
+https://im-mr-meeseeks-look-at.me/
